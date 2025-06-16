@@ -44,8 +44,8 @@ Karina Wiedyska, Filip Kaminski, Uygar Ülgen
 
 ### Writing – Original Draft Preparation:
 
-Uygar Ülgen, Karina Wiedyska, Filip Kaminski
+Uygar Ülgen
 
 ### Writing – Review & Editing: 
 
-Uygar Ülgen, Karina Wiedyska, Filip Kaminski
+Uygar Ülgen
